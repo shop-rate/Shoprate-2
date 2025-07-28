@@ -1,1 +1,0 @@
-# Shoprate-2
